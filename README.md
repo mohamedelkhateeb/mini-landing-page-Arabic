@@ -1,1 +1,0 @@
-# mini-landing-page-Arabic
